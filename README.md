@@ -1,6 +1,8 @@
 # VERSION-2025-Candy-Crush-Saga-Free-Gold-Bars-Codes
 Candy Crush Saga is a popular free-to-play puzzle game developed by King, released in April 2012 for Facebook, and later for iOS, Android, Windows Phone, and Windows. The game combines match-three mechanics with vibrant graphics and strategic elements, attracting millions of players worldwide.
 
+<h2><a href="https://allresources.xyz/candycrush.html/">LEARN MORE</a></h2>
+
 #Key Features:
 Match-Three Gameplay: Players swap adjacent candies on a grid to create matches of three or more candies of the same color. Matching candies earns points and triggers effects like clearing sections of the board.
 
